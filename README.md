@@ -1,4 +1,4 @@
-# **🔥 PowerDreamer Promo Code: 10% OFF (2025 Exclusive Deal!)**  
+#  PowerDreamer Promo Code: 10% OFF 2025 Exclusive Deal!
 
 🚀 **LIMITED-TIME OFFER:** Get **10% OFF** all PowerDreamer plans! **Unlock AI-powered business tools and automation** at the **best price of 2025**.  
 
